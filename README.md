@@ -1,6 +1,7 @@
-<p align=center> <img src=https://komarev.com/ghpvc/?username=siIksong&style=flat&color=000000&label=zzz&base=10000000000>
-<p align=center> i dont play this game no more dude 
-
+<p align=center> <img src=https://komarev.com/ghpvc/?username=siIksong&style=flat&color=000000&label=peaches&base=1002011000>
+<p align=center> <a href="https://rentry.co/twiyor">Rentry</a> ‎ ‎ ‎ ‎ ‎ <a href="https://acheswan.atabook.org">Sign Ata</a>
+<p align=center> <img src="https://files.catbox.moe/s6txr1.gif"/> </p>
+<p align=center> Manifesting Kafhime Planacardia interactions </p>
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
 ⠀⠀⠀⠀
